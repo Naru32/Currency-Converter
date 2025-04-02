@@ -96,7 +96,7 @@ If you like this project, **don't forget to ⭐ the repo!** 🚀
 ## 📬 Contact & Connect
 
 👤 **Narendra Mahalle**  
-💼 [LinkedIn](https://linkedin.com/in/yourprofile)  
+💼 [LinkedIn](https://www.linkedin.com/in/narendra-mahalle-929896194/)  
 📧 [Email](mailto:narendramahalle1434@gmail.com)  
 
 Let's build something amazing together! 😃🚀
